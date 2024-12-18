@@ -49,7 +49,8 @@ CapCut Mod APK is packed with impressive features that make it one of the best v
 
 These features make it an exceptional **video editing app** for content creators who want to elevate their video production game.  
 
-![images (7)](https://github.com/user-attachments/assets/cbcf8c70-6793-4a9f-9cc4-97dc491dc441)
+![images (3)](https://github.com/user-attachments/assets/3847c4ea-94a6-4fb7-a0ae-2204475ef6fa)
+
 
 
 ## Pros and Cons of CapCut Mod APK  
@@ -96,7 +97,7 @@ With these tips, creating share-worthy content becomes effortless!
 ## How to Download CapCut Mod APK for PC or Android  
 Downloading **CapCut Mod APK for PC** or Android is simple and safe. Here’s how you can do it:  
 
-1. **Visit ModHello**: Open the trusted [ModHello website](#).  
+1. **Visit ModHello**: Open the trusted [HEYAPK website](#).  
 2. **Search for the App**: Type "CapCut Mod APK" in the search bar.  
 3. **Choose the Latest Version**: Click on the version compatible with your device.  
 4. **Download and Install**: Follow on-screen instructions to complete the installation.  
